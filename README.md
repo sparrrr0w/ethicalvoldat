@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sparrrr0w
+- 👋 Hi, I’m @ethicalvoldat
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning here and there
 - 💞️ I’m looking to collaborate on here
